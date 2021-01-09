@@ -1,0 +1,1 @@
+All Emojis have been created by Irahs (aka. "Rrrrrrrons Mudda"):<br/>[YouTube](https://www.youtube.com/channel/UCYMAzsbHi_smxLdgwwFHkUw)<br>[Twitter](https://twitter.com/Irahs99)
